@@ -1,1 +1,1 @@
-say fuck you asshole
+say fuck you
